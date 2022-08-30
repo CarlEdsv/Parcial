@@ -9,3 +9,4 @@ Colaboradores:
 - YosoyLuis503 🥶👒
 - DarkCastl 🦇🃏
 - Bybryanx1997🤑🛐
+- Sexo
